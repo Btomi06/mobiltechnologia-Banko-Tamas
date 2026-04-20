@@ -1,2 +1,2 @@
-# mobiltechnol-gia-Bank-Tam-s
+# mobiltechnolgia-Bankó Tamás
 Bankó Tamás mobiltechnológia kurzus 2026
